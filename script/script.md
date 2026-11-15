@@ -18,7 +18,7 @@ Une question tient tout le film : comment un homme qui n'a enseigné que deux an
 | 6 | Le vendredi de Jérusalem | 0:45 | L'instant manqué |
 | 7 | Le Lion s'est tu | 0:50 | La réponse à l'énigme |
 
-Total : 5:00 — environ 530 mots de narration.
+Total : 5:00 — environ 480 mots de narration.
 
 ---
 
